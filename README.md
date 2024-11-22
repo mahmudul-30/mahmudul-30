@@ -20,7 +20,7 @@ A passionate student and developer from Jahangirnagar University (CSE Department
 
 ## 📫 Let's Connect!
 - LinkedIn: [https://www.linkedin.com/in/mahmudul-hassan-830057256/](#)
-- Email: (mailto:mahmuduljucse30@gmail.com)
+- Email: mahmuduljucse30@gmail.com
 
 ---
 
